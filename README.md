@@ -1,1 +1,1 @@
-## Welcome to Metalfrog2018 Studio
+## Welcome to Metalfrog Studio
